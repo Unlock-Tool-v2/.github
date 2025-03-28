@@ -17,7 +17,8 @@ If you're thinking about trying UnlockTool, you should know that it requires act
 The tool has become popular in mobile repair shops and among tech enthusiasts who frequently need to unlock devices. 🧑‍🔧
 
 🎁 **Try it now:**  
-[![Get FREE trial!](https://img.shields.io/badge/Get-FREE_trial!-brightgreen?style=for-the-badge)](https://www.kqzyfj.com/bi103p-85-7NPOOQOWWWPNPSOSTPUO?sid=para)
+For Android Devices: [![Get FREE trial!](https://img.shields.io/badge/Get-FREE_trial!-brightgreen?style=for-the-badge)](https://www.jdoqocy.com/sk82cy63y5LNMMOMUUUNLNPTVTQPN?sid=par)  
+For iPhone: [![Get FREE trial!](https://img.shields.io/badge/Get-FREE_trial!-brightgreen?style=for-the-badge)](https://www.dpbolvw.net/sq112iqzwqyDFEEGEMMMFDFHLNLIGL?sid=par)
 
 ### Key Takeaways 📝
 * UnlockTool helps users bypass screen locks and security features on various mobile devices from major brands like Samsung, Xiaomi, and iPhone.
@@ -56,7 +57,8 @@ Android users aren't left out either. The Android version works on Samsung, OPPO
 * Lifetime Plan: $49.95
 
 🎁 **Try it now:**  
-[![Get FREE trial!](https://img.shields.io/badge/Get-FREE_trial!-brightgreen?style=for-the-badge)](https://www.kqzyfj.com/bi103p-85-7NPOOQOWWWPNPSOSTPUO?sid=para)
+For Android Devices: [![Get FREE trial!](https://img.shields.io/badge/Get-FREE_trial!-brightgreen?style=for-the-badge)](https://www.jdoqocy.com/sk82cy63y5LNMMOMUUUNLNPTVTQPN?sid=par)  
+For iPhone: [![Get FREE trial!](https://img.shields.io/badge/Get-FREE_trial!-brightgreen?style=for-the-badge)](https://www.dpbolvw.net/sq112iqzwqyDFEEGEMMMFDFHLNLIGL?sid=par)
 
 ---
 
@@ -124,4 +126,5 @@ This translates to better business and happier clients who can get back into the
 ---
 
 🎁 **Try it now:**  
-[![Get FREE trial!](https://img.shields.io/badge/Get-FREE_trial!-brightgreen?style=for-the-badge)](https://www.kqzyfj.com/bi103p-85-7NPOOQOWWWPNPSOSTPUO?sid=para)
+For Android Devices: [![Get FREE trial!](https://img.shields.io/badge/Get-FREE_trial!-brightgreen?style=for-the-badge)](https://www.jdoqocy.com/sk82cy63y5LNMMOMUUUNLNPTVTQPN?sid=par)  
+For iPhone: [![Get FREE trial!](https://img.shields.io/badge/Get-FREE_trial!-brightgreen?style=for-the-badge)](https://www.dpbolvw.net/sq112iqzwqyDFEEGEMMMFDFHLNLIGL?sid=par)
